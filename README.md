@@ -1,1 +1,1 @@
-This is Bharathi Kodavatikanti Personal Portfolio
+This is Bharathi Personal Portfolio
